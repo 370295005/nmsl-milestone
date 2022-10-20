@@ -1,4 +1,4 @@
-<font color='red' size=10>2022/08/18 NMSL纪念日即既沙葱分手纪念日</font>
+<font color='red' size=10>2022/08/18 NMSL纪念日暨沙葱分手纪念日</font>
 
 ## NMSL
 
@@ -30,6 +30,12 @@ wechatid:apex_iwnl
 ### 2022/10/07
 
 沙葱：lyb是个几把
+
+### 2022/10/20
+
+Leo：CCP的肉喇叭
+
+![image-20221020142927468](D:\NMSL-milestone\images\image-20221020142927468.png)
 
 ### 未知时间
 
