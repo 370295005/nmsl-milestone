@@ -11,7 +11,7 @@ nash封号至2022/06/29
 ### 2022/08/23
 约定于2050/07/01到天悦湾小溪上红色小船开会
 
-![image-20220823094910147](.\images\image-20220823094910147.png)
+![image](https://user-images.githubusercontent.com/39272235/223003717-8741f628-dda4-475e-9676-11322c005e93.png)
 
 ### 小号
 尻
@@ -35,13 +35,13 @@ wechatid:apex_iwnl
 
 Leo：CCP的肉喇叭
 
-![image-20221020142927468](D:\NMSL-milestone\images\image-20221020142927468.png)
+![image](https://user-images.githubusercontent.com/39272235/223003744-4d75d832-4759-4a8e-a756-16579b4093d2.png)
 
 ### 2022/11/23
 
 尻：个人英雄主义要树立起来，ccp只有一个emperor，那就是我噗噗
 
-![微信截图_20221123154439](.\images\微信截图_20221123154439.png)
+![image](https://user-images.githubusercontent.com/39272235/223003761-822d0681-da95-4bbf-91cb-ca30e316fe62.png)
 
 ### 2023/02/6
 
