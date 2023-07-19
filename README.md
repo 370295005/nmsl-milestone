@@ -1,10 +1,11 @@
 <font color='red' size=10>2022/08/18 NMSL纪念日暨沙葱分手纪念日</font>
 
-## NMSL
-
+# NMSL
+## 封号合集
 ### 2022/06/28
 nash封号至2022/06/29
 原因说了某个卡通人物的名字
+
 ### 2022/08/18
 沙葱封号至2022/09/02
 原因发了某人女儿
@@ -12,11 +13,19 @@ RIPNMSL
 
 ![8982ef8b7e4574cdada56d6d30f7551](https://github.com/370295005/nmsl-milestone/assets/39272235/65e53e30-10e7-4256-a519-a2e4c96608b1)
 
+### 2022/11/05
+NASH封号至2022/11/08
 
-### 2022/08/23
-约定于2050/07/01到天悦湾小溪上红色小船开会
+![3b9eefcfa8a36e44d72f7d5967f38b8](https://github.com/370295005/nmsl-milestone/assets/39272235/0b279cea-9e85-42ef-b62a-f350c49d083f)
 
-![image](https://user-images.githubusercontent.com/39272235/223003717-8741f628-dda4-475e-9676-11322c005e93.png)
+### 2022/09/24
+lam第一次封号
+
+### 2022/10/14
+lam第二次封号（新号）至2022/11/14
+
+### 2022/11/27
+Leo：账号封禁一天
 
 ### 小号
 尻
@@ -27,6 +36,11 @@ nash
 wechatid:apex_iwnl
 
 ## NMSL逆天语录
+
+### 2022/08/23
+约定于2050/07/01到天悦湾小溪上红色小船开会
+
+![image](https://user-images.githubusercontent.com/39272235/223003717-8741f628-dda4-475e-9676-11322c005e93.png)
 
 ### 2022/10/11
 
@@ -54,9 +68,6 @@ Leo：CCP的肉喇叭
 
 ![7d38d6f9247def02a63359e038e1a43](https://user-images.githubusercontent.com/39272235/216940695-0c31e5b0-425e-45a0-a3a8-0d3bb4cf034c.jpg)
 
-
-### 2022/11/27
-Leo：账号封禁一天
 
 ### 2023/05/17
 郑清钢：黑龙也是龙的传人
