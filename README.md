@@ -60,6 +60,8 @@ Leo：账号封禁一天
 Leo：用不用手把手教你 （对沙葱）
 ![image](https://github.com/370295005/nmsl-milestone/assets/39272235/b051eeb0-7d27-4eb2-a12a-54ed70200af1)
 
+### 2023/06/30
+Nash：给幕刃爆金币60块
 
 ### 未知时间
 
