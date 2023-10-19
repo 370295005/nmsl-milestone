@@ -85,7 +85,7 @@ Nash：给幕刃爆金币60块
 ![8b7e23f8f50a8bbb036c340ab9b7b8c](https://github.com/370295005/nmsl-milestone/assets/39272235/cd74cac7-c462-409e-aac4-30324633dec4)
 
 ### 2023/08/03
-RIP NMSL
+RIP NMSL Leo地狱嗨河百
 
 ![image](https://github.com/370295005/nmsl-milestone/assets/39272235/3bcf1d01-7cc2-4065-aa0b-030057ddcdf6)
 
