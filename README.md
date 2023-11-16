@@ -14,7 +14,7 @@ RIPNMSL
 ![8982ef8b7e4574cdada56d6d30f7551](https://github.com/370295005/nmsl-milestone/assets/39272235/65e53e30-10e7-4256-a519-a2e4c96608b1)
 
 ### 2022/11/05
-NASH封号至2022/11/08
+NASH封号至2022/11/08 发了“某北京男子”
 
 ![3b9eefcfa8a36e44d72f7d5967f38b8](https://github.com/370295005/nmsl-milestone/assets/39272235/0b279cea-9e85-42ef-b62a-f350c49d083f)
 
