@@ -108,6 +108,7 @@ RIP NMSL Leo地狱嗨河百
 
 ### 2024/10/24
 <img width="389" alt="image" src="https://github.com/user-attachments/assets/f769d8d5-fd08-4b52-896d-30b7b44fbb1f">
+<img width="254" alt="image" src="https://github.com/user-attachments/assets/b1c38f86-3193-44cd-ae06-7543df98b3f3">
 
 ## 其他
 ### 2024/07/06
