@@ -110,6 +110,11 @@ RIP NMSL Leo地狱嗨河百
 <img width="389" alt="image" src="https://github.com/user-attachments/assets/f769d8d5-fd08-4b52-896d-30b7b44fbb1f">
 <img width="254" alt="image" src="https://github.com/user-attachments/assets/b1c38f86-3193-44cd-ae06-7543df98b3f3">
 
+### 2024/11/21
+<img width="374" alt="image" src="https://github.com/user-attachments/assets/13c0eae0-cd13-4b85-a8ed-964e4b06476b">
+<img width="377" alt="image" src="https://github.com/user-attachments/assets/91ee3732-7086-469f-832b-e56b290d7013">
+
+
 ## 其他
 ### 2024/07/06
 pw遇到司马房东不退押金
