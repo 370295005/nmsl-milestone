@@ -91,6 +91,8 @@ Nash：给幕刃爆金币60块
 ### 2023/08/03
 RIP NMSL Leo地狱嗨河百
 
+![image](https://github.com/user-attachments/assets/e466f1a8-5ef7-43ab-aa54-f25998eecf97)
+
 ![image](https://github.com/370295005/nmsl-milestone/assets/39272235/3bcf1d01-7cc2-4065-aa0b-030057ddcdf6)
 
 ### 2023/10/16
