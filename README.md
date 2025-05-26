@@ -41,6 +41,14 @@ wechatid:apex_iwnl
 
 ## NMSL逆天语录
 
+### 2020/04/11
+![26235e63986c44aed79708e021bcfcd](https://github.com/user-attachments/assets/8adbccb0-d490-4511-8451-1b5484a09281)
+![990ccfedfd54dd2e9130738115f0649](https://github.com/user-attachments/assets/359e7f00-b873-45a3-9832-30dd1a50d907)
+
+### 2020/05/7
+![ea015a5f585f2e294e9dbd87c09a300](https://github.com/user-attachments/assets/b7cb0d3f-dbf2-4383-a69a-c45ebf55e00c)
+
+
 ### 2022/08/23
 约定于2050/07/01到天悦湾小溪上红色小船开会
 
